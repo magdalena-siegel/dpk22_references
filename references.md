@@ -1,3 +1,9 @@
+# Supporting sexual and gender-diverse populations during COVID-19: Evidence from a community-led, pan-European study and implications for clinical practice
+
+## References for poster presentation (German Psychotherapy Congress, 7.6-11.6.2022, Berlin, Germany)
+
+Author: Magdalena Siegel, <magdalena.siegel@univie.ac.at>
+
 1.  Salerno, J. P., Williams, N. D., & Gattamorta, K. A. (2020). LGBTQ
     populations: Psychologically vulnerable communities in the COVID-19
     pandemic. *Psychological Trauma: Theory, Research, Practice, and
